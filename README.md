@@ -16,7 +16,7 @@ Hi hello I'm Timmy/Waxwell/Em/Morty!!
 </p>
 
 <p align="center">
-I use He/Him, They/Them or Dew/Dews pronouns mainly.
+I use He/Him, They/Them, Vamp/Vamps or Dew/Dews pronouns mainly.
 </p>
 
 <p align="center">

@@ -24,7 +24,7 @@ Minor!!! Over 18 interact with care
 </p>
 
 <p align="center">
-#1 McCafferty fan no you can't prove me wrong
+#1 McCafferty and Scary Bitches fan no you can't prove me wrong
 </p>
 
 <p align="center">

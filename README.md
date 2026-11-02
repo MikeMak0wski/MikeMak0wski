@@ -49,7 +49,7 @@ Go sign my ata!! Yayy!!!
   <summary><strong>📼 IWC (,,•᷄﹏‎•᷅,,)</strong></summary>
  
   - Rickorty shippers. Cough,,, triggering asf,,, cough,,, kin memories,,, cough,,,,
-  - Pros/darks : Keep talk about your pro/darkships to a minimum pls, I am a darkshipper myself who ships very little darkships for the sole reason of coping with things I would not like 2 discuss, but some darkships can make me uncomfy :3 I also don't talk about my darkships unless specifically asked to do so by friends or whilst talking to another darkshipper, because I prefer to keep it private because I do not want to accidentally influence people to darkship for fun by bringing the topic up, for that is extremely UNHEALTHY ^_^
+  - Pros/darks : Keep talk about your pro/darkships to a minimum pls, I am a darkshipper myself who ships very little darkships for the sole reason of coping with things I would not like 2 discuss, but some darkships can make me uncomfy :3 I also don't talk about my darkships unless specifically asked to do so by friends or whilst talking to another darkshipper, because I prefer to keep it private because I do not want to accidentally influence people to darkship for fun by bringing the topic up, for that is extremely UNHEALTHY ^_^ Though I may mention it in my pony names!!
   - Peoples who kin the same thingo as me (who just relate to them)
   - People friends with snowyrescue (coalcarolynne)
 </details>

@@ -1,7 +1,14 @@
 <div align="center">
 <h2>
-$\color{#ED3315}{\text{𝕿𝖍𝖎𝖘 𝖗𝖊𝖆𝖉𝖒𝖊 𝖎𝖘 𝖆 𝖜𝖎𝖕, 𝖗𝖚𝖓 𝖆𝖑𝖔𝖓𝖌 𝖑𝖎𝖙𝖙𝖑𝖊 𝖋𝖆𝖓𝖌 .}}$
+$\color{#8C1C07}{\text{' 𝖄𝖊𝖆𝖍, 𝕴'𝖒 𝖒𝖔𝖗𝖊 𝖆 𝖘𝖆𝖓𝖌𝖚𝖎𝖓𝖆𝖗𝖎𝖆𝖓 𝖛𝖆𝖒𝖕𝖎𝖗𝖊, }}$
 </h2>
 </div>
+<div align="center">
+<h2>
+$\color{#8C1C07}{\text{𝕴𝖓 𝖙𝖍𝖆𝖙 𝕴 𝖗𝖊𝖑𝖞 𝖒𝖔𝖗𝖊 𝖔𝖓 𝖙𝖍𝖊 𝖑𝖎𝖋𝖊-𝖋𝖔𝖗𝖈𝖊 𝖊𝖓𝖊𝖗𝖌𝖞, 𝖕𝖊𝖗 𝖘𝖊. ' }}$
+</h2>
+</div>
+,,<img width="200" alt="image" src="https://github.com/user-attachments/assets/23e734d0-e13e-4491-807d-52275f9cf67f" /><img width="405" alt="image" src="https://github.com/user-attachments/assets/a9798073-7fcf-49b6-9865-3b1766d8d82b" /><img width="200" alt="image" src="https://github.com/user-attachments/assets/d2747f99-4724-4a85-9d2f-d39e93b4a649" />,,
+
 
 

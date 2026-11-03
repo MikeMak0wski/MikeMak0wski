@@ -8,7 +8,9 @@ $\color{#8C1C07}{\text{' 𝖄𝖊𝖆𝖍, 𝕴'𝖒 𝖒𝖔𝖗𝖊 𝖆 𝖘�
 $\color{#8C1C07}{\text{𝕴𝖓 𝖙𝖍𝖆𝖙 𝕴 𝖗𝖊𝖑𝖞 𝖒𝖔𝖗𝖊 𝖔𝖓 𝖙𝖍𝖊 𝖑𝖎𝖋𝖊-𝖋𝖔𝖗𝖈𝖊 𝖊𝖓𝖊𝖗𝖌𝖞, 𝖕𝖊𝖗 𝖘𝖊. ' }}$
 </h2>
 </div>
-<img width="200" alt="image" src="https://github.com/user-attachments/assets/23e734d0-e13e-4491-807d-52275f9cf67f" /><img width="405" alt="image" src="https://github.com/user-attachments/assets/a9798073-7fcf-49b6-9865-3b1766d8d82b" /><img width="200" alt="image" src="https://github.com/user-attachments/assets/d2747f99-4724-4a85-9d2f-d39e93b4a649" />
+<p align="center">
+<img width="405" alt="image" src="https://github.com/user-attachments/assets/a9798073-7fcf-49b6-9865-3b1766d8d82b" />
+</p>
 
 
 

@@ -10,7 +10,9 @@ $\color{#C72100}{\text{𝕴𝖓 𝖙𝖍𝖆𝖙 𝕴 𝖗𝖊𝖑𝖞 𝖒𝖔�
 </div>
 
 <div align="center">
-$\color{#C72100}{\text{Dni list coming soon okay? I am stressed with skool.}}$
+<h2>
+$\color{#C72100}{\text{Dni list coming soon okay? I am stressed with skool. }}$
+</h2>
 </div>
 
 
